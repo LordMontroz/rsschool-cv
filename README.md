@@ -1,1 +1,1 @@
-# rsschool-sv
+https://lordmontroz.github.io/rsschool-sv/cv
